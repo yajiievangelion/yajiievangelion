@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @yajiievangelion
+- 👀 I’m interested in script game
+- 🌱 I’m currently learning making script game
+- 💞️ I’m looking to collaborate on roblox script
+- 📫 How to reach me dm to discord : yajii14
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: have an interest in coding and computers
